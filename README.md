@@ -1,1 +1,0 @@
-# rizalmuhammad.github.io
